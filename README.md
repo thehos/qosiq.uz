@@ -1,0 +1,2 @@
+# qosiq.uz
+qosiq.uz
